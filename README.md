@@ -2,7 +2,15 @@
 
 En las últimas horas, la búsqueda de Gabriela Serpa y su video filtrado ha aumentado en plataformas como Telegram, X (antes Twitter) y Reddit. Esta tendencia surgió después de que la actriz cómica Gabriela Serpa acusara a su exnovio, Gonzalo Méndez, de filtrar contenido íntimo sin su consentimiento.
 
-El abogado de Serpa, Elio Riera, afirmó que existen indicios de que Méndez transfirió los archivos privados de la integrante de "JB en ATV". "Existen indicios para sostener que este delincuente realizó la transferencia de archivos", declaró Riera.
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
 
 ¿Por qué buscan el video de Gabriela Serpa en Telegram?
 El video en cuestión contiene imágenes íntimas de Gabriela Serpa, que fueron compartidas sin su autorización. La difusión de este material comprometedor ha generado una ola de búsquedas en internet, especialmente con términos como "Gabriela Serpa video Telegram" y "Gabriela Serpa video filtrado", ya que muchos usuarios intentan acceder al contenido filtrado.
